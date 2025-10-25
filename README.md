@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with others
-- 🥅 2024 Goals: Learn more about web
+- 🥅 2025 Goals: Learn more about web
 - ⚡ Fun fact: I love to play video games
 
 ### Connect with me:
