@@ -1,6 +1,6 @@
 # Hi there, I'm Maahi
 
-## I'm a Developer, and Student!!
+## I'm a Developer!!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with others
